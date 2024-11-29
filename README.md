@@ -1,1 +1,2 @@
-# -Innovaci-n-en-la-fotograf-a-profesional
+# -Innovación-en-la-fotografía-profesional
+Cada sesión fotográfica es una obra que combina planificación meticulosa y ejecución precisa. Las luces estratégicas, cámaras de última generación y la pasión del equipo técnico y creativo se unen para dar vida a imágenes extraordinarias. La tecnología actúa como el puente que transforma ideas en arte, mientras el talento humano aporta el toque que las hace únicas. Cada detalle, desde el encuadre hasta la iluminación, refleja una fusión perfecta de técnica y creatividad.
